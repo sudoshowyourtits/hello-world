@@ -1,23 +1,18 @@
-# this cat is addicted to fentanyl
+# cats are addicted to fentanyl
 
-　　　 　  ／＞　    フ
-　　　 　　| 　_　 _ l
-　 　　 　／` ミ＿xノ
-　　 　 /　　　 　 |
-　　　 /　 ヽ　　 ﾉ
-　 　 │　　|　|　|
-　／￣|　　 |　|　|
-　| (￣ヽ＿_ヽ_)__)
-　＼二つ
 
-　　　 　　／＞　　フ
-　　　 　　| 　_　 _ l
-　 　　 　／` ミ＿xノ
-　　 　 /　　　 　 |
-　　　 /　 ヽ　　 ﾉ
-　 　 │　　|　|　|
-　／￣|　　 |　|　|
-　| (￣ヽ＿_ヽ_)__)
-　＼二つ
-
-this cat is addicted to fentanyl
+          `   `o+             
+         -++///.              
+   `-`       :-.              
+   oso```  `ossss`    ` :so-  
+  `:///ss: `sosos:   sso./:`  
+  /so:/--`  +ssss/   .-//so:  
+   ``  -:-..+ssss+--:--.`:/.  
+          .:oosss/-`          
+           /sooso             
+          -soooo`             
+         `oosos:      here's sudowoodo reminding you to
+        `/+++++/      be careful when using sudo!
+       .+/+++++o.             
+      `+:``.-.`://-           
+     /+/-       `++` 
